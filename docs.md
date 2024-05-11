@@ -1,4 +1,4 @@
-This documentation describes how to use the Pavel automatic toothbrush. 
+This documentation describes how to use the Pavel fantastically automated toothbrush. 
 
 9 out of 10 dentists recommend this toothbrush and this documentation.
 
