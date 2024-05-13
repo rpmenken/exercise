@@ -1,7 +1,7 @@
-This documentation describes how to use the Kracken fantastically automated toothbrush. These instructions are easy to follow.
+This documentation describes how to use the Kracken fantastically automated toothbrush. These instructions are easy to follow. I am super serious.
 
 9 out of 10 dentists recommend this toothbrush and this documentation. That 1 dentist is dumb.
 
-Note that this toothbrush is absolutely safe to use for children, adults, pets, wildlife, and trees.
+Note that this toothbrush is absolutely safe to use for children, adults, pets, wildlife, trees, and insects.
 
 The toothbrush requires [need info here].
